@@ -1,0 +1,2 @@
+# premium-bellows-fold-001-concertina-bellows-fold-card-a
+Tired of rigid Notion databases that force you to scroll endlessly? The Concertina Bellows Fold Card and Leather Planner gives your notes a physical, accordion-like flow—expand only what you need, when you need it.  This template solves information overload by organizing your tasks, projects, or research into expandable 'bellows' that fold open and
